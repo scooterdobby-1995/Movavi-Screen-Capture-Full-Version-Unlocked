@@ -1,0 +1,1 @@
+# Movavi-Screen-Capture-Full-Version-Unlocked
